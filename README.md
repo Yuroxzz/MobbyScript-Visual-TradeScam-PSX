@@ -1,1 +1,0 @@
-# MobbyScript-Visual-TradeScam-PSX
